@@ -10,4 +10,4 @@ to discover your inner self and gain peace.
 
 Peace on earth as it is in heaven.
 
-A perfect harmony between mind and body.
+A perfect harmony between mind, body and spirit.
